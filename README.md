@@ -1,3 +1,3 @@
 # Project
 
-[alt text](https://hizliresim.com/t41d1u3) 
+[alt text](C:\Users\furkan\OneDrive\Masaüstü)
