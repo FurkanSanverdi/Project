@@ -1,3 +1,3 @@
 # Project
 
-![alt text] (https://r.resimlink.com/nNUf3k.png) 
+[alt text](https://hizliresim.com/t41d1u3) 
